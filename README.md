@@ -1,2 +1,2 @@
 # Selling Markov Chainz to 2 Chainz
-![Truuuuu](http://d1zjcuqflbd5k.cloudfront.net/files/acc_131520/GvX8?response-content-disposition=inline;%20filename=Screenshot%20on%202013-06-06%20at%2019.00.10.png;%20filename*=UTF-8%27%27Screenshot%20on%202013-06-06%20at%2019.00.10.png&Expires=1373239659&Signature=BrFPfJvE3GeTCC3R52sQnroQYSauqV6CVL4DGNHJdaVvoHdQM6F~rLMquVkgZ1j3TApKZLR0tSGGzFGcpCwOMIJ8q12tnKbtQoCo~Lbzf6WcphDxaAqE7Z73NZ1BJWOBOYZCELIQe~Kv9AomFcI4mcmNiTlTaJ3EDzXOfdXBvxI_&Key-Pair-Id=APKAJTEIOJM3LSMN33SA)
+![Truuuuu](http://i.imgur.com/BmbWknE.png)
